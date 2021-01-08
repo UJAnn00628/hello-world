@@ -2,7 +2,4 @@
 That's a learning proj
 
 I dont kown what to say.
-I just want to see more technology videos.
-
-1 
-2
+This have been two years, I learned much things during this time, now I am back.
