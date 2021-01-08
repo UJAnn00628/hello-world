@@ -1,8 +1,5 @@
 # hello-world
-That's a learning proj
 
-I dont kown what to say.
-I just want to see more technology videos.
+试试中文怎么样
 
-1 
 2
